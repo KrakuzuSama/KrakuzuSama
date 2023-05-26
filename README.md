@@ -7,3 +7,5 @@ Meu nome é Krakuzu
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
 luis.cordeiro.trindade@escola.pr.gov.br -----------> Krakuzu :)
+
+![](https://media.tenor.com/ZIf2LdFqTRAAAAAC/kuroko.gif)
